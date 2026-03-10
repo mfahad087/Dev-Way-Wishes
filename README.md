@@ -8,4 +8,4 @@
 
 feel free to mess around with the colors or the smoothing math.
 
-ramadan mubarak! 🤲🏽💻
+EID mubarak! 🤲🏽💻
